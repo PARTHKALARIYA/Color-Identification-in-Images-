@@ -1,1 +1,1 @@
-here the images are directly download from google
+here the images are directly downloaded from google
